@@ -1,1 +1,1 @@
-# stramlit2024
+# stramlit2024 정보 연수
